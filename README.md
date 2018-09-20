@@ -1,0 +1,2 @@
+# seflinkuh
+seflinkuh tolak selingkuh
